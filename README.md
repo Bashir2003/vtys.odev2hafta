@@ -1,1 +1,0 @@
-# vtys.odev2hafta
